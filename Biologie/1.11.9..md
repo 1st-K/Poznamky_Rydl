@@ -1,0 +1,30 @@
+### **Úvod do biologie:**
+Seznámení s případovou studií
+
+**budeme se bavit:** 
+- o pubertě 
+- o stresu 
+
+
+**Případová studie:**
+*Jak zvládnout první rok na střední škole v klidu a v pohodě*
+
+Jsi student 1. ročníku průmyslové školy. Vstupuješ do nového prostředí, máš nové spolužáky, učitele, delší vyučování i více domácí přípravy. Zároveň se přidává tělesná výchova a sportovní zátěž. Tvým úkolem je zamyslet se, jak toto všechno zvládnout z pohledu biologie člověka - tedy fungování lidského těla a zdraví.
+
+**co bude nejtěžší při úspěšném zvládnutí 1. ročníku střední:**
+- adaptace 
+- zodopovědnost 
+- stres 
+- zvládnout tu zátěž
+- nezhroutit se
+
+skupina - červená 
+1. Rýdl Dan
+2. Ondra Sejpka 
+3. Oliver Sobčák
+4. Zdeněk Sadílek
+5. Jan Vitoušek
+6. David Matoušek
+7. Erdinč Daškin
+8. Frederik Křížek
+9. Adam Bougée
