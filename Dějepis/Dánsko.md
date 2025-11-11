@@ -7,3 +7,5 @@
 - prusko
 
 zámiňka pro válku
+
+[[Německo]]

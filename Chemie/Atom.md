@@ -20,3 +20,4 @@ trajektorie planetárního modelu jsou příliš jednoduché
 Přesnou dráhu a poppohu elektronu téměř nelze určit
  
 **prý mám plus**
+[[prvek a jeho protony]]

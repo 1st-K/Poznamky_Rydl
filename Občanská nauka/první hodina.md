@@ -9,3 +9,4 @@ výstupem budou případové studie (2x - 4x ročně)
 - Vedení zápisků bonusem (na konci testu kouknout do zápisků (**je potřeba to mít vytištěné**)
 
 **Primárně se bude probírat psychologie**
+[[základy etikety]]

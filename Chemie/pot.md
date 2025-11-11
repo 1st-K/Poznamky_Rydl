@@ -1,0 +1,1 @@
+prý mám plus

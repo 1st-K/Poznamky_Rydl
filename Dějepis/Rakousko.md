@@ -1,5 +1,5 @@
 ### Před 1848
-- příliš mnoho národů 
+příliš mnoho národů 
 - Ferdinand V. a Klement von Metternich 
 - cenzura a vojenská síla
 - pokus o udržení státu
@@ -10,7 +10,7 @@ chtějí spojení státu
 zbavit se slovanů
 
 ### Konec spojenectví 
-nemci svolali sjezd viz. [[Mezi státní vztahy v 19. a 20. století]] 
+nemci svolali sjezd viz. [[Německo]] 
 reakcí slovanů je panslovanský sjezd (vše slovanský)
 ##### Mše bratrská 
 původně to byla mše a pak se změnila na demonstraci
