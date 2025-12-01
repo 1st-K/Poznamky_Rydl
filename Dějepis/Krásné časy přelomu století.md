@@ -1,3 +1,4 @@
+[[Rakousko]]
 1914
 Němci jedou na frontu proti francii 
 Němci se těší, protože nacionalismus, mladí si nepamatují jaká je válka, mysleli si, že to brzy skončí
@@ -32,3 +33,16 @@ divadlo
 mont marter = umělecká ulice 
 "mulin rouge" - nejzmámnější kabaret
 scházela se tu umělecká smetánka
+
+### umění:
+Lautrec - umělec nižšího vzrůstu, maloval lidi na okraji společnosti, hlavně prostitutky
+během "zlatých dvacátých" se začala nálada společnosti měnit spousta lidí byla na pokraji chudoby
+
+##### secese
+=odchod od minulosti do budoucnosti
+douhé nepravidelné linky
+vše se ornamentalizuje 
+Alfons Mucha
+
+
+Antonio Gaudí = baráky v barceloně, nebyl stoprocentně secesní umělec
