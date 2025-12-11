@@ -40,9 +40,12 @@ během "zlatých dvacátých" se začala nálada společnosti měnit spousta lid
 
 ##### secese
 =odchod od minulosti do budoucnosti
-douhé nepravidelné linky
+dlouhé nepravidelné linky
 vše se ornamentalizuje 
 Alfons Mucha
 
 
 Antonio Gaudí = baráky v barceloně, nebyl stoprocentně secesní umělec
+
+[[Velká válka]]
+

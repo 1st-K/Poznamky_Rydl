@@ -19,16 +19,24 @@ Bulharsko se cítí málocenně a snaží se získat více uzemí
  
 #### Zapadni fronta:
 nemecko - franci + spojenci 
-1914: nemecký utok na belgii a francii
+1914: nemecký utok na belgii a francií
+1916: nemci chtěli se dostat přes mažinostovu linii
+vyměnili kladivo a kovadlinu
+1918 jaro-leto: Závěrečné ofenzívy - útok na Paříž
+Protiútok (plné nasazení USA jednotek)
 konec 11.11.1918
 
 #### vychodní fronta 
 německo + rakousko-ruska 
+1917 listopad: Revoluce v Rusku
+1918 březen: Separátní mír Rusko a Centrlní mocnosti - obrovská územní ztráta Ruska
 bolševická revoluce 
 rusko nebylo schopno fungovat vnitřně natož aby bojovali 
 konec 3.3.1918
 
 #### italská fronta
+1915 květen: Itálie se připojí k Dohodě
+většina lidí nezemřela na boj ale na laviny.
 
 #### balkánská fronta
 #### operace gallipoli

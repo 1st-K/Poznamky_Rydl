@@ -1,3 +1,4 @@
+[[pot]]
 vznikem vazby klesá energie => je stabilnější
 
 ## Vazby:

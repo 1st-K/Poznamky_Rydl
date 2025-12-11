@@ -1,4 +1,4 @@
-
+[[Druhy článků]]
 Oční kontakt
 přecházet z člověka na člověka 
 cikcak 

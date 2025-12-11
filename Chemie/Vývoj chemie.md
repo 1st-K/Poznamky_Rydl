@@ -1,3 +1,4 @@
+[[chemická vazba]]
 - Alchimie prachemie, pavěda
 - S rozvojem alchymie bylo objevováno čím dál více prvků
 - V alchymii měla každá látka svůj symbol 

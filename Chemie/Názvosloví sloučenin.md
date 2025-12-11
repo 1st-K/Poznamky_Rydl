@@ -1,3 +1,4 @@
+[[chemická vazba]]
 ### Triviální názvosloví
 - Názvosloví má pevná pravidla, která vždy platí
 - je previdelně aktualizováno

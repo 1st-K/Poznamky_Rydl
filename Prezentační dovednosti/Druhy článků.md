@@ -1,3 +1,4 @@
+[[jak psát článek]]
 ### Šedá zóna:
 recenze - je třeba podat názor, ale zároveň je třeba být neutralní
 ### Publicistika:
