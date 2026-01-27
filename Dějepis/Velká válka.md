@@ -30,7 +30,7 @@ konec 11.11.1918
 německo + rakousko-ruska 
 1917 listopad: Revoluce v Rusku
 1918 březen: Separátní mír Rusko a Centrlní mocnosti - obrovská územní ztráta Ruska
-bolševická revoluce 
+bolševická revoluce ([[Rudý Říjen]])
 rusko nebylo schopno fungovat vnitřně natož aby bojovali 
 konec 3.3.1918
 
@@ -43,4 +43,4 @@ většina lidí nezemřela na boj ale na laviny.
 osmanská říše
 gallipoli je výběžek mezi evropou a asii
  
- 
+ [[Jak se bojuje za svobodu - československý odboj za velké války]]

@@ -1,0 +1,1 @@
+ovlivněna hodne knihou [[Bible]]
