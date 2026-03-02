@@ -1,4 +1,4 @@
-vyrvořena v roce 0 
+vytvořena v roce 0 
 několik autorů
 velice ovlivnila středověk 476-1492
 
@@ -13,7 +13,7 @@ Lukáš Matouš Marek Jan to se psali
 Listy svatého Pavla
 Korespondence 
 ##### Apokalipsa:
-Zjevení svatého .....
+Zjevení svatého jana
 
 
 ## Příběhy z bible:

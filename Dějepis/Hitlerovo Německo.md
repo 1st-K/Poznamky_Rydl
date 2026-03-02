@@ -1,0 +1,1 @@
+Hitler vyhrál volby demokraticku

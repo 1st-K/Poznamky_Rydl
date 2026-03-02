@@ -20,4 +20,4 @@ napsal žalozpěvy
 dílo proměny:
 zpracoval 250 římských bájí, které mají stejnou věc společnou, proměna
 
- ==arbitr == rozhodčí, soudce 
+ ==arbitr== = rozhodčí, soudce
