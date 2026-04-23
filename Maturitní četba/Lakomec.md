@@ -1,3 +1,4 @@
+[[povinné knihy]]
 Eliška spolu se správcem. Eliška mu oznámí, že má outěžek. Ona mu říká, že ani neví zda ji má rád. On ji požádá o ruku. Pote přichází její bratr. Schovají její snubní prsten. Kleant přijede a začne vyprávět o nově přistěhovalé dívce, Marianě. Vypraví o tom jak ji miluje a Eliška se mu chce svěřit s tím, že ví jaké to je, a že je zasnoubená. K tomu však nedojde, protože je vždy přerušena Kleantem, že ví jak bude reagovat. Společně probírají chamtivost jejich otce.
 
 Otec přichází povídá jim o tom mladé dívce, která se přistěhovala. Jeho syn je velmi nadšen, ze začátku. Později se dozvídá o plánech svého otce, který si ji chce vzít. Tato zpráva se mu samozřejmě nelíbí. Je to ještě horší. Otec jim spolu s touto informací sdělí, že pro ně vybral partnery. Pro Elišku pana Anselma, velmi váženého a hlavně bohatého postaršího pána, a pro Kleanta vybral nějakou bohatou vdovu (v příběhu se neobjevuje není důležitá). Oba protestují. 

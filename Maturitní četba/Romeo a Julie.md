@@ -1,3 +1,4 @@
+[[povinné knihy]]
 celé se to odehrává v Florencii
 hlavní dějová linka je o dvou znepřátelených rodech: Montekové a Kapuleti
 

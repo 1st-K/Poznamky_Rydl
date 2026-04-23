@@ -1,3 +1,4 @@
+[[Římská literatura]]
 na území starovekeho řima 
 ##### charakteristika 
 těžkopádné 
@@ -24,3 +25,4 @@ spjat s osobností sv. Řehoře
 ##### žánry
 svitanicko - milostna lyrika
 pastorela - milostna lyrika, tyka se to pastiru
+[[Konstastin a Metoděj]]

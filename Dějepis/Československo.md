@@ -29,3 +29,22 @@ Trianon
 Smlouva proti maďarsku a rakousku
 ČSR, Rumunsko, Jugoslavie
 [[O sporech, srážkách a otevřené válce]]
+
+### Ekonomika
+hlavní úkol byl nemít stejnou inflaci jako [[Hitlerovo Německo]]
+měli jsme výhodu, že jsme byli velmi průmyslově založení
+pořád se platilo rakouskými korunami. 
+v rakousku začala hyperinflace
+na to aby se nemohlo podvádět tak se okolkovali bankovky
+
+#### znárodňování
+##### 1945 - před komunisty
+benešovi dekrety 
+pozemky nad 245 hertaru (asi) byly povině odkoupeny
+byla vyplacena náhrada 
+cena za pozemek se vyplácela ve výši jako byla v roce 1913
+
+##### 1948 - komunisti
+znárodňování 
+vyvlastnění 
+bez vyplacení, bez náhrad

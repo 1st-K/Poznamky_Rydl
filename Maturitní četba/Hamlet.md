@@ -1,4 +1,4 @@
-
+[[povinné knihy]]
 Hamlet studuje v zahraniči 
 Hamletovi zemře otec 
 kdyz se vrátí tak zjistí že jeho matka si vzala jeho strýce. Hamlet tím hrozně trpí. Doslechne se, že někdo viděl ducha jeho otce. Jde se podívat. Duch mu řekne že ho zabil Claudius (Strýc). Hamlet si však nemůže být jist zda to nebyl ďábel. Takže to musí nějak zjistit. 

@@ -1,6 +1,6 @@
 enable password /heslo/ == prihlasovani
 banner motd * text * == configuruje text na zacatku (vítací text)
-conf term == configurujes terminal, nejvyšší oprávnění (patro)
+conf teconf term == configurujes terminal, nejvyšší oprávnění (patro)
 show run == ukazuje configuraci, přehled 
 service password-encrypcion == skryje heslo
 copy run start == ulozi aktualni konfiguraci a jde vybrat kam

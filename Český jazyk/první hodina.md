@@ -1,6 +1,6 @@
 Ivona Vítová kabinet 303
 psát přes teams 
-
+[[Bloková vyuka]]
 
 **Jak to bude:**
 - sloh a literatura se bude střídat 

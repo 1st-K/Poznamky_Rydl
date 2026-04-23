@@ -13,13 +13,13 @@ zákon sjudnyj ljudem = zákoník pro světské právo, pro nevěřící
 cyril vyzobrazovan s papirusem 
 metodej vyzobrazovan s knihou
 kyjevské listy = 
-
+	kristiánova legenda = o ludmile a vaclavovi
 
 863 - příchod Cyrila a Metoděje na Velkou Moravu, je natlak na panovníka od Franků, rozhodl se spojit narod duchovně, zada byzantskou řisi
-867 -
+867 - obhajoba liturgického jazyka
 868 -
-869 -
-880 -
+869 - smrt konstantina
+880 - 
 885 - 
 
 

@@ -47,3 +47,4 @@ nepoměr sil v boji
 dvě ženy se hádají od jedno dítě 
 jeho řešení je to dítě rozříznout 
 ta skutečná matka to dítě zapřela 
+[[Husitství]]
