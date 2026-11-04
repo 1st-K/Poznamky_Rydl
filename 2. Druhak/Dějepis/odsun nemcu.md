@@ -1,0 +1,2 @@
+"divoky odsun"
+nikym neschvalene
