@@ -41,3 +41,7 @@ bolševická revoluce
 - víc viz [[Velká válka]]
 
 ### Občanská válka (1918 - 1922)
+
+
+### Stalinova era
+[[Stalinova Éra]]

@@ -1,4 +1,4 @@
-[[Romeo a Julie]] od Shakespeara
+[[Maturitní četba/Romeo a Julie]] od Shakespeara
 [[Lakomec]] od Moliera
 [[Hamlet]] od Shakespeara
 

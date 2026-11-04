@@ -7,5 +7,5 @@ Británie je nechtěla nechat to udělat, protože by Francie měla moc velkou m
 část ruska - občanská válka, takže jednoduché na získání
 část Německa - to už bylo těžší němci to nikdy neodpustili. 
 
-[[Dějepis/Československo]]
+[[Československo]]
 

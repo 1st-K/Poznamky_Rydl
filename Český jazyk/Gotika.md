@@ -3,6 +3,8 @@ velmi mohutne
 Označení "gotské umění pochází z renesance a je hanlivé"
 Doznívá v 15. století
 
+delka bot byla dana podle postaveni
+
 vertikala
 žebrová klenba
 lomený oblouk = jakoby ruce 

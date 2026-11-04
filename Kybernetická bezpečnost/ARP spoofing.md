@@ -1,4 +1,4 @@
-## `ARP`
+	## `ARP`
 - Address Resolution Protocol
 - preklada IP adresu na MAC v ramci LAN
 - ARP request = broadcast na vsechna zarizeni a "kdo ma IP `<IP>` posli svoji MAC!"
